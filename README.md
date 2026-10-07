@@ -10,13 +10,13 @@ Experience seamless USDT access with a fast, lightweight, and modern Android app
 
 ## 🔗 Get Started
 
-👉 **[Get the APK / Learn More](https://t.me/gniaxx)**
+👉 **[Admin](https://t.me/gniaxx)**
 
 ## 📢 Stay Connected
 
 Stay ahead with tools that work for you.
 
-👉 **[Follow Recent Coders](https://t.me/RecentCoders)** for more updates, releases, and projects.
+👉 **[Follow Sheikh Coders](https://t.me/SheikhCoders)** for more updates, releases, and projects.
 
 ---
 
